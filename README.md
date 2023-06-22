@@ -1,0 +1,1 @@
+# https-accessorystore.vodafone.com
